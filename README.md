@@ -1,2 +1,2 @@
 # Ztype-
-tuzya aai chi gand
+null
